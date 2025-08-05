@@ -1,5 +1,3 @@
-LinkedIn](https://www.linkedin.com/in/hari-krishnan-v-3901b7317/) | [💻 Portfolio](https://github.com/Hari-krishnan-v)<br><br>---<br><br>✨ *I love solving problems with clean code and impactful design. Always open to collaborate on exciting ideas!*<br>
-
 
 ## 🌐 Socials:
 [![Discord](https://img.shields.io/badge/Discord-%237289DA.svg?logo=discord&logoColor=white)](https://discord.gg/https://discord.gg/2ek3TpSN) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/ha_ri_kri_sh_n4n) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/hari-krishnan-v-3901b7317/) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:harikrishnanvimal777@gmail.com) 
